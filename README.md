@@ -1,0 +1,2 @@
+# taskinimga
+sen uchun atalgan
